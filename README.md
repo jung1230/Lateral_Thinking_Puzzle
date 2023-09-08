@@ -1,0 +1,1 @@
+# Lateral_Thinking_Puzzle
